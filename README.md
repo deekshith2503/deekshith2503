@@ -1,6 +1,6 @@
 ![loop](https://github.com/deekshith2503/deekshith2503/blob/main/GITHUB%20BANNER.png)
 # 💫 About Me:
-🫡 Myself Deekshith Naik. I’m a student studying at SVUCE<br>🌱 I’m currently doing computer science engineering<br>⚡ I would love to learn new technology.<br>💻 Exploring the vast world of technology <br>⚡ Fun fact: I'm Funny 😂
+🫡 Myself Deekshith Naik. I’m a student studying at SVUCE<br>🌱 I’m currently pursuing my computer science engineering<br>⚡ I would love to learn new technology.<br>💻 Exploring the vast world of technology <br>⚡ Fun fact: I'm Funny 😂
 
 
 ## 🌐 Socials:
